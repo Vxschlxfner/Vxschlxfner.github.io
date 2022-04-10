@@ -1,1 +1,1 @@
-Hund
+Katze
